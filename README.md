@@ -1,3 +1,3 @@
-## SOURCE PULLED BY ADAM (66adam) & BHOP (femeie)
+## yooooo lol
 
-## USE A BETTER BOT https://evict.bot
+## use my bot plz
